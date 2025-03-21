@@ -1,3 +1,9 @@
 #Hummus recipe
 
-chickpeas, smash them, add tahini, stir or blend.
+Ingredients:
+Chickpeas 
+Tahini
+spices or flavorings
+salt
+
+Boil chickpeas, smash them, add tahini and salt, stir or blend, add any toppings or flavors.
